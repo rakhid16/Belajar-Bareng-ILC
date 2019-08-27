@@ -1,1 +1,1 @@
-Jangan lupa di<i>follow</i> http://www.instagram.com/ilcupnjatim/
+Jangan lupa ikuti juga http://www.instagram.com/ilcupnjatim/
