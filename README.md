@@ -1,1 +1,1 @@
-<i>Special thanks to http://www.instagram.com/ilcupnjatim/</i>
+Jangan lupa di<i>follow</i> http://www.instagram.com/ilcupnjatim/
